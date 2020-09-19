@@ -11,7 +11,7 @@
 
 📫 How to reach me
 - telegram: [@themxxx](https://t.me/themxxx)
-- email: [daimingxi.work@gmail.com](daimingxi.work@gmail.com)
+- email: [daimingxi_hazel@yahoo.com](daimingxi_hazel@yahoo.com)
 
 
 <!--
